@@ -16,5 +16,13 @@
 - Deus Ex: Human Revolution
 - South Park: La Vara de la Verdad
 - Dragon's Dogma
-- .
+- ............
 - Tomb Raider
+- Eternal Sonata
+- Borderlands Pre-Sequel
+- Alan Wake
+- Lollipop Chainsaw
+- Vanquish
+- Mafia II
+- The Evil Within
+- Crackdown 2
